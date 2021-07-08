@@ -1,1 +1,0 @@
-# ruzkarzak.github.io
